@@ -9,3 +9,7 @@ Next [Diary](https://aryanmangla23.github.io/08-05-2022/).
 To be in control
 
 Stop being so stubborn
+
+Worked on college waste
+
+Weight: 153.3
